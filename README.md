@@ -17,8 +17,8 @@ This is a Google virus that makes your device die and is dangerous and undetecta
 
 I am not responsible for misuse ☺
 
-تابعني على : https://fsocitey.tiiny.site/
-My accounts and websites : https://fsocitey.tiiny.site/ 
+تابعني على : https://fsocitey.neocities.org/
+My accounts and websites : https://fsocitey.neocities.org/
 
 بتوفيق 쓰
 Good luck 쓰
